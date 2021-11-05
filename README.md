@@ -1,1 +1,0 @@
-# shaxsiy_sahifam
